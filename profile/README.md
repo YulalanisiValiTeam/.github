@@ -4,7 +4,7 @@
 
 🗣 **About Us**
 
-At **Node Galaxy**, we are a constellation of tech enthusiasts and developers committed to the cosmos of blockchain technology. Our mission is to empower and support the backbone of decentralized networks—validator nodes. 🚀
+At **YulalanisiValiTeam**, we are a constellation of tech enthusiasts and developers committed to the cosmos of blockchain technology. Our mission is to empower and support the backbone of decentralized networks—validator nodes. 🚀
 
 **Innovation and Education**📘✨
 

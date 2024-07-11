@@ -1,6 +1,6 @@
 **Our Links**
 
-**Twitter** - [**@Yulalanisi**](https://x.com/Yulalanisi)  |  **Oficial Notion Page** - [**go to page**](https://helpful-feet-9d1.notion.site/YulalanisiValiTeam-cb53dbaed7094d76a08f0add9bdf92ed)  |  **Contact Email** - [**email us**](mailto:mollyjuliana39@gmail.com)
+**Twitter** - [**@Yulalanisi**](https://x.com/Yulalanisi)  |  **Official Notion Page** - [**go to page**](https://helpful-feet-9d1.notion.site/YulalanisiValiTeam-cb53dbaed7094d76a08f0add9bdf92ed)  |  **Contact Email** - [**email us**](mailto:mollyjuliana39@gmail.com)
 
 🗣 **About Us**
 
